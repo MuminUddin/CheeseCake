@@ -79,4 +79,4 @@ Refrigerate **at least 4 hours** (preferably overnight).
 
 <!-- Recipe ID: 20240526-cheesecake-v1 -->
 
-Follow our Instagram
+Please Follow our Instagram
